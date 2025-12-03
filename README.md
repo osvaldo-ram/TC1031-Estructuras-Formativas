@@ -2,4 +2,4 @@
 
 Jesús Osvaldo Ramos Pérez - A01713833
 
-Estás son las tareas que entregué a lo largo del curso
+Estás son las tareas que entregué a lo largo del curso y no realice correcciones
